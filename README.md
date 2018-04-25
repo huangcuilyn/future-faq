@@ -1,2 +1,2 @@
 # future-faq
-to answer the questions about my plans after graduation
+to answer the hoard of questions about my life plans for post-graduation
